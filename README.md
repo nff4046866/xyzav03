@@ -20,4 +20,4 @@
 结语  
 选择一个靠谱的视频平台，享受高清、流畅、无广告的观看体验，才是最理想的观看方式。安全、稳定的站点将给你带来最好的观影体验。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link]( https://github.com/nff4046866/xyzav03)</span>
